@@ -1,1 +1,1 @@
-komcol
+sipul komcol
